@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a second-year master's student majoring in Applied statistics looking to improve my analytics skills and apply it in the world  
+I’m a second-year master’s student in Applied Statistics, eager to sharpen my analytics skills and tackle real-world challenges. I’m driven by curiosity and excited to turn data into actionable insights!
 
 
 ## 🌐 Socials:
